@@ -5,7 +5,7 @@ OK SO HI(gh) to anyone whos too lazy to look at my strawpage WHICH is arguably o
 HI(gh) again here are my characters that i #relate to
 ---------------------------------------------
 
-⊹ Greg Heffley (Diary of a Wimpy Kid) + me except take all my morals and make me bitter
+⊹ Greg Heffley (Diary of a Wimpy Kid) + me if u stripped all of my morals and made me super bitter
 
 ⊹ Gumball Watterson (The Amazing World Of Gumball) + me except get rid of humiliation apparently
 
